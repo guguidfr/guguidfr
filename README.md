@@ -1,6 +1,6 @@
-### Hi there 👋
-# Twitter:
+# Aló 👋
+### Twitter:
 https://twitter.com/guguidfr
 
-# Instagram:
+### Instagram:
 https://www.instagram.com/jd_photography872/
