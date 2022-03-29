@@ -1,6 +1,5 @@
 # Aló 👋
-### Twitter:
-https://twitter.com/guguidfr
-
+### Steam:
+https://steamcommunity.com/id/guguidfr/
 ### Instagram:
 https://www.instagram.com/jd_photography872/
